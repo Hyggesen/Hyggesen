@@ -1,4 +1,4 @@
-![image](https://github.com/Hyggesen/Hyggesen/blob/main/reachoutreadme1.png)
+![image](https://github.com/Hyggesen/Hyggesen/blob/main/reachoutreadme%201.png)
 
 
 ### Welcome to my GitHub profile! 👋
